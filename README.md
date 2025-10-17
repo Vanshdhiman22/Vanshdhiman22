@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Vanshdhiman22
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning about Ai
+- 🌱 I’m currently learning about Ai and cyber security
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me Vanshdhiman22@gmail.com
 - 😄 Pronouns: ...
